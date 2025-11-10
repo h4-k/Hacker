@@ -1,3 +1,0 @@
-!! # Hacker!
-!QW
-wesh cv
